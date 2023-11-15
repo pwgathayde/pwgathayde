@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Arthur</h1>
-<h3 align="center">Estudando de dados.</h3>
+<h3 align="center">Estudante de dados.</h3>
 
 - Atualmente estudo **Python, Power BI e SQL**
 
