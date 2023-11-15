@@ -5,7 +5,7 @@
 
 - Você me acha através do e-mail **pwgathayde@gmail.com**
 
-- Atualmente atuo no ramo de auditoria [https://www.linkedin.com/in/arthur-athayde-71681b186/](https://www.linkedin.com/in/arthur-athayde-71681b186/)
+- Atualmente trabalho com auditoria [https://www.linkedin.com/in/arthur-athayde-71681b186/](https://www.linkedin.com/in/arthur-athayde-71681b186/)
 
 - Fatos engraçados **Sou tatuador nas horas vagas e gosto de ler mangás**
 
